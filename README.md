@@ -1,2 +1,2 @@
-# miyofit.github.io
-hi anu
+# miyo.fit
+everything you need for healthy cooking, delivered
